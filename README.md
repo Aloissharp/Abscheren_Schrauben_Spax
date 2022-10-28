@@ -1,1 +1,1 @@
-Nachweis Abscheren von Spax-Schrauben
+Nachweis Abscheren von Spax-Schrauben (SMath Studio).
